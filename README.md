@@ -1,4 +1,4 @@
-## 🐌 Power Slug located. Well done, Pioneer.
+## 🐌 Pink Power Slug located. Well done, Pioneer.
 
 Yes, you're in the right place. Look down at the contribution graph.
 
